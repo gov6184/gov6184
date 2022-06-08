@@ -24,6 +24,9 @@ I enjoy working on projects that put me to the test and help me enhance my abili
 
 - 📫 How to reach me **gm040381@gmail.com**
 
+- my portfolio link:https://inquisitive-melba-c5e04a.netlify.app/#/Resume
+- my Instagram id:gov6184 
+
 - ⚡ Fun fact **I love listening songs , playing badminton**
 
 <h3 align="left">Connect with me:**https://www.linkedin.com/in/govind-mishra-5758a0234/** </h3>
