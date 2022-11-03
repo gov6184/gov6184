@@ -24,7 +24,7 @@ I enjoy working on projects that put me to the test and help me enhance my abili
 
 - 📫 How to reach me **gm040381@gmail.com**
 
-- my portfolio link:[https://bejewelled-mermaid-fed912.netlify.app/)
+- my portfolio link:[https://govindmishra.netlify.app/)
 - my Instagram id:gov6184 
 
 - ⚡ Fun fact **I love listening songs , playing badminton**
